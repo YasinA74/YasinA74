@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @YasinA74
-- 🌱 I’m currently learning/interested in → Digital Marketing, entepreneurship, coding, and creating:)
-- 📫 How to reach me →
+- 🌱 I’m currently learning/interested in → creating, entepreneurship, and coding:)
+- 📫 How to reach me → email or linkedin
